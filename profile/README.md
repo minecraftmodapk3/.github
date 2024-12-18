@@ -6,7 +6,7 @@
 
 The **Minecraft Mod APK** is a modified version of the original game, providing enhanced features, unlimited resources, and a variety of extra functionalities not available in the standard version. Players can enjoy customizations and exciting mods that make the game even more immersive.
 
-#### DOWNLOAD CLICK HERE : ⬇️https://modhello.com/?s=minecraft 📲
+#### DOWNLOAD CLICK HERE : ⬇️https://modhello.com/minecraft/ 📲
 ![1_21_60_24](https://github.com/user-attachments/assets/55459786-d78e-462b-bc14-1f569153b7b4)
 
 
